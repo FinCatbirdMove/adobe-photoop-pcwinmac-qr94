@@ -1,4 +1,4 @@
-# 
+# Native Adobe Photoshop plugins for Mac OS | VIP Adobe Photoshop plugins for PC Windows. Featuring dodge-and-burn and print-ready-output — optimized for maximum performance on every platform.
 
 
 
